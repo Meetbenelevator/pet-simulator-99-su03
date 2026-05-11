@@ -1,4 +1,4 @@
-#  
+#  top hooked Script offers the most advanced hooked Script, with custom skins and aimbot. Perfect for dominating any match.
 
 
 
